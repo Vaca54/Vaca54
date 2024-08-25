@@ -1,0 +1,6 @@
+- 👋 Hi, I'm Vasya.
+- 👀 I'm interested in 
+- 🌱 I'm learning Python now.
+- 📫 You can contact me on Telegram: @vaca378 Discord: vaca22
+- 😄 I want to learn Java
+- ⚡ Interesting fact: I'm Belarusian lol
